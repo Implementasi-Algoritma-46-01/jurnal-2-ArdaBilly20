@@ -1,8 +1,8 @@
-## Identitas
+## Muhammad ArdaBilly Anugrah
 
-Nama: 
+Nama: Muhammad ArdaBilly Anugrah
 
-NIM : 
+NIM : 607062400104
 
 ## Instruksi
 
